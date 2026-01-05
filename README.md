@@ -1,2 +1,2 @@
-Đây là minh chứng của em, chứng mình em chính LÀ CHỦ NHÂN của số điểm đó
+Đây là minh chứng của em, chứng mình em chính LÀ CHỦ NHÂN của số điểm đó.
 Em là Xuân Thuỳ-BIT230395 lớp SOFT-5
